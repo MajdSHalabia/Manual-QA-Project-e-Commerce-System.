@@ -1,0 +1,1 @@
+# Manual-QA-Project-e-Commerce-System.
